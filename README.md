@@ -1,8 +1,8 @@
 # fartpur
-Why Purpur is terrible replacement for Paper
+Why Purpur devs are rude
 
 # READ:
-to make sure youhavetrouble and euphilla leave from purpurmc, i am going to teach them why Purpur is idiotic and terrible PaperMC Replacement!
+The Purpur Function is okay but i swear that the developers doesn't support Bedrock I Tell You! 
 
 # Why Purpur Sucks:
 
